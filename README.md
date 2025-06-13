@@ -1,4 +1,4 @@
-# selahattin-özdemir-ben-kimim?
+
 
 <h1 align="center">Selam! 👋 Ben Selahattin Özdemir</h1>
 

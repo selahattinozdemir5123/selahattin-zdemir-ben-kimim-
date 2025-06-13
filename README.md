@@ -34,7 +34,7 @@
 
 ### 📫 Bana Ulaş
 
-- ✉️ E-posta: **selocancşity25@gmail.com**  
+- ✉️ E-posta: **selocancity25@gmail.com**  
 - 📞 Telefon: **0537 327 5639**
 
 ---
